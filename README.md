@@ -1,0 +1,1 @@
+Detalji o projektu
